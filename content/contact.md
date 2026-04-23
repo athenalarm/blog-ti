@@ -36,4 +36,10 @@ Guanlan, Longhua, Shenzhen, Guangdong, China
 
 ---
 
+### 🛡️ ዓለማዊ ናይ ጸጥታ ፍልጠታት
+
+**Athenalarm ፍርያትን ስርዓታትን መከላኸሊ ስርቂ (Burglar Alarm) ዝምልከት ክኢላዊ ፍልጠት ዘካፍል ሞያዊ ኣፍራዪ እዩ።** ንዓለማዊ ማሕበረሰብ ጸጥታ ዘሎና ተወፋይነት ንምርግጋጽ፡ ብ71 ቋንቋታት ዝተዳለወ ናይ ከባቢ ፍልጠት ነቕርብ። ንኤውሮጳ, ኣፍሪቃ, ኤስያ, ኣመሪካን ኦሺንያን ዝተዳለወ መኽዘን ፍልጠትና [**ኣብዚ**](https://athenalarm.com/burglar-alarm-manufacturer/athenalarm-global-blogs/) ተመልከቱ।
+
+---
+
 > _Athenalarm — ብሓላፍነት ዝተሰማማዕ ዝተመርጹ ኣብ ቤት መጠቀም መሳርሒ እንተ ዝተዋህደ ናይ መስመር መሳርሒ ኣስተዳደር ኣሎ።_
